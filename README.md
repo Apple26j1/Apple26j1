@@ -2,4 +2,4 @@
 - 👀 I’m interested in: Minecraft Hack Clients
 - 🌱 I’m currently learning: Java
 - 💞️ I’m looking to collaborate on: Minecraft Hack Clients
-- 📫 How to reach me: Discord: Apple26j#3284, Guilded: Apple26j
+- 📫 How to reach me: Discord: Apple26j#0766
